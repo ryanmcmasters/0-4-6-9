@@ -1,4 +1,2 @@
-# nonET
-nonET, for laptop ensemble
-
-the piece will be hosted here and stuff and i'll support it and things wow.
+# 0 - 4 // 6 - 9
+for laptop ensemble
